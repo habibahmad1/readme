@@ -30,7 +30,7 @@ Jangan ragu untuk menjelajahi repositori saya dan jangan sungkan untuk memberika
 
 ##### 10. Pentingnya Pemeliharaan Kode (Code Maintenance): Sebagian besar waktu yang dihabiskan oleh pengembang perangkat lunak tidak hanya dalam menulis kode baru, tetapi juga dalam memelihara dan mengelola kode yang sudah ada. Oleh karena itu, kemampuan untuk membaca dan memahami kode yang sudah ada (code readability) sangat penting dalam pengembangan perangkat lunak yang berkelanjutan.
 
-# Fakta Menarik Ilmu Dunia
+# Fakta Menarik Ilmu Dunia 🌎
 ##### 1. Great Wall of China: Tembok Besar China adalah satu-satunya struktur buatan manusia yang bisa terlihat dari luar angkasa.
 
 ##### 2. Pohon Quaking Aspen: Pohon Quaking Aspen, yang bisa ditemukan di Amerika Utara, adalah organisme tunggal terbesar di dunia dengan luas hutan yang seluruhnya merupakan klon tunggal.
