@@ -50,3 +50,24 @@ Jangan ragu untuk menjelajahi repositori saya dan jangan sungkan untuk memberika
 ##### 9. Gunung Everest: Gunung Everest adalah gunung tertinggi di dunia, mencapai ketinggian 8.848 meter di atas permukaan laut.
 
 ##### 10. Guinness World Records: Guinness World Records adalah buku terlaris di dunia, dicetak dalam lebih dari 100 bahasa dan telah terjual lebih dari 143 juta kopi sejak pertama kali diterbitkan pada tahun 1955.
+
+# 10 fakta menarik tentang Indonesia 🔮
+##### 1. Keanekaragaman Budaya: Indonesia merupakan negara dengan keanekaragaman budaya yang luar biasa. Terdapat lebih dari 300 kelompok etnis dan lebih dari 700 bahasa yang berbeda di seluruh negeri.
+
+##### 2. Kepulauan yang Luas: Indonesia adalah negara kepulauan terbesar di dunia, terdiri dari lebih dari 17.000 pulau, dimana sekitar 6.000 di antaranya dihuni. Pulau terbesarnya adalah Papua dan Kalimantan.
+
+##### 3. Gunung Berapi: Indonesia memiliki lebih dari 130 gunung berapi aktif, menjadikannya negara dengan jumlah gunung berapi terbanyak di dunia. Salah satu yang terkenal adalah Gunung Merapi di Jawa Tengah.
+
+##### 4. Kekayaan Hayati: Indonesia merupakan salah satu negara dengan keanekaragaman hayati tertinggi di dunia. Hutan hujan tropisnya adalah rumah bagi berbagai spesies unik termasuk orangutan, harimau, dan gajah.
+
+##### 5. Kopi Kopi: Indonesia merupakan salah satu produsen kopi terbesar di dunia. Kopi dari daerah seperti Sumatera, Java, dan Bali sangat terkenal di pasar global.
+
+##### 6. Bhinneka Tunggal Ika: Motto nasional Indonesia, "Bhinneka Tunggal Ika", berasal dari bahasa Jawa Kuno yang berarti "Berbeda-beda tetapi satu kesatuan". Ini mencerminkan semangat persatuan dalam keberagaman.
+
+##### 7. Monyet di Taman Nasional: Taman Nasional Gunung Leuser di Sumatera Utara adalah rumah bagi spesies monyet langka, termasuk orangutan Sumatera yang terancam punah.
+
+##### 8. Religi Religi: Indonesia adalah negara dengan populasi Muslim terbesar di dunia, namun juga memiliki berbagai agama dan kepercayaan lainnya seperti Kristen, Hindu, Buddha, dan kepercayaan tradisional.
+
+##### 9. Tradisi Unik: Ada banyak tradisi unik di Indonesia, seperti upacara adat, tarian tradisional, dan festival budaya yang diadakan di berbagai daerah.
+
+##### 10. Makanan Lezat: Kuliner Indonesia terkenal di seluruh dunia karena kelezatan dan keunikannya. Beberapa makanan khas Indonesia yang terkenal antara lain nasi goreng, rendang, sate, dan gado-gado.
