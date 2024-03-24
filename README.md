@@ -84,3 +84,16 @@ Jangan ragu untuk menjelajahi repositori saya dan jangan sungkan untuk memberika
 ##### 4. Oman (Rial Oman): Rial Oman memiliki nilai tukar yang tinggi, dan mata uang ini juga dikenal karena stabilitasnya.
 
 ##### 5. Yordania (Dinar Yordania): Meskipun Yordania adalah negara yang relatif kecil, Dinar Yordania memiliki nilai tukar yang tinggi terhadap mata uang lainnya.
+
+
+# Negara dengan Penduduk Terpintar 💯
+
+##### 1. Singapura: Singapura sering kali menduduki peringkat teratas dalam berbagai indeks pendidikan global. Sistem pendidikan yang sangat baik, penekanan pada disiplin, dan investasi yang besar dalam pendidikan membuat penduduknya menjadi salah satu yang terpintar di dunia.
+
+##### 2. Jepang: Jepang dikenal dengan sistem pendidikan yang sangat kuat dan budaya yang menghargai nilai-nilai pendidikan tinggi. Tingkat literasi yang tinggi dan keberhasilan dalam ujian internasional seperti PISA menunjukkan bahwa penduduk Jepang termasuk yang terpintar di dunia.
+
+##### 3. Korea Selatan: Korea Selatan juga dikenal karena sistem pendidikannya yang sangat kompetitif dan efisien. Tingkat pendidikan tinggi dan pencapaian akademis yang luar biasa membuat penduduknya menjadi salah satu yang terpintar di dunia.
+
+##### 4. Finlandia: Finlandia sering kali dianggap sebagai salah satu negara dengan penduduk terpintar karena sistem pendidikan yang unggul, fokus pada kreativitas, dan pengajaran yang berkualitas tinggi. Penduduk Finlandia memiliki tingkat literasi yang sangat tinggi dan hasil ujian internasional yang mengesankan.
+
+##### 5. Norwegia: Norwegia juga sering kali muncul dalam daftar negara dengan penduduk terpintar. Sistem pendidikan yang inklusif, dukungan pemerintah yang kuat, dan investasi dalam pendidikan membuat penduduk Norwegia memiliki tingkat literasi dan pendidikan yang tinggi. 
