@@ -51,7 +51,7 @@ Jangan ragu untuk menjelajahi repositori saya dan jangan sungkan untuk memberika
 
 ##### 10. Guinness World Records: Guinness World Records adalah buku terlaris di dunia, dicetak dalam lebih dari 100 bahasa dan telah terjual lebih dari 143 juta kopi sejak pertama kali diterbitkan pada tahun 1955.
 
-# 10 fakta menarik tentang Indonesia 🔮
+# 10 fakta menarik tentang Indonesia 🎓
 ##### 1. Keanekaragaman Budaya: Indonesia merupakan negara dengan keanekaragaman budaya yang luar biasa. Terdapat lebih dari 300 kelompok etnis dan lebih dari 700 bahasa yang berbeda di seluruh negeri.
 
 ##### 2. Kepulauan yang Luas: Indonesia adalah negara kepulauan terbesar di dunia, terdiri dari lebih dari 17.000 pulau, dimana sekitar 6.000 di antaranya dihuni. Pulau terbesarnya adalah Papua dan Kalimantan.
@@ -71,3 +71,16 @@ Jangan ragu untuk menjelajahi repositori saya dan jangan sungkan untuk memberika
 ##### 9. Tradisi Unik: Ada banyak tradisi unik di Indonesia, seperti upacara adat, tarian tradisional, dan festival budaya yang diadakan di berbagai daerah.
 
 ##### 10. Makanan Lezat: Kuliner Indonesia terkenal di seluruh dunia karena kelezatan dan keunikannya. Beberapa makanan khas Indonesia yang terkenal antara lain nasi goreng, rendang, sate, dan gado-gado.
+
+
+# Negara Dengan Nilai Mata Uang Tinggi 💲
+
+##### 1. Kuwait (Dinar Kuwait): Dinar Kuwait sering kali dianggap sebagai salah satu mata uang dengan nilai tertinggi di dunia. Nilai tukarnya terhadap mata uang lainnya, terutama terhadap Dolar AS, relatif tinggi.
+
+##### 2. Bahrain (Dinar Bahrain): Dinar Bahrain juga memiliki nilai tukar yang tinggi terhadap mata uang lainnya, terutama terhadap Dolar AS.
+
+##### 3. Brunei (Dolar Brunei): Dolar Brunei memiliki nilai tukar yang kuat dan stabil, terutama karena negara ini memiliki sumber daya alam yang kaya, seperti minyak dan gas alam.
+
+##### 4. Oman (Rial Oman): Rial Oman memiliki nilai tukar yang tinggi, dan mata uang ini juga dikenal karena stabilitasnya.
+
+##### 5. Yordania (Dinar Yordania): Meskipun Yordania adalah negara yang relatif kecil, Dinar Yordania memiliki nilai tukar yang tinggi terhadap mata uang lainnya.
