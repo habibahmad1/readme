@@ -150,3 +150,54 @@ Jangan ragu untuk menjelajahi repositori saya dan jangan sungkan untuk memberika
 ##### 10. Puding Mangga: Puding mangga yang segar dan lembut, disajikan dengan potongan mangga segar di atasnya.
 
 
+# Makanan Khas Setiap Negara
+
+##### 1. Indonesia:
+
+##### - Nasi Goreng: Nasi goreng adalah hidangan nasi goreng yang digoreng dalam minyak dan biasanya dicampur dengan bumbu seperti bawang putih, bawang merah, kecap manis, saus cabai, dan rempah-rempah. Biasanya disajikan dengan telur mata sapi, irisan mentimun, tomat, acar, dan kerupuk.
+##### - Rendang : Rendang adalah masakan daging yang berasal dari Minangkabau, Sumatra Barat. Daging (biasanya daging sapi) dimasak dalam santan dan rempah-rempah seperti serai, lengkuas, daun jeruk, cabai, bawang merah, bawang putih, jahe, dan banyak lagi. Rendang dimasak dalam waktu yang lama hingga santan mengental dan rempah-rempah meresap ke dalam daging, menciptakan cita rasa yang kaya dan lezat.
+
+##### 2. Italia:
+
+##### - Pizza Margherita: Pizza klasik dengan saus tomat, mozzarella, dan daun basilikum.
+##### - Spaghetti Carbonara: Pasta spaghetti dengan saus krim telur, keju parmesan, pancetta, dan lada hitam.
+
+##### 3. Jepang:
+
+##### - Sushi: Potongan kecil nasi yang dilapis dengan irisan ikan mentah, seafood, telur, atau sayuran.
+##### - Ramen: Mie Jepang yang disajikan dalam kuah kaldu dengan topping seperti daging, telur, rumput laut, dan sayuran.
+
+##### 4. Meksiko:
+
+##### - Tacos: Kulit tortilla yang diisi dengan daging panggang, ikan, atau sayuran, kemudian ditambahkan dengan saus, kubis, dan bahan-bahan lainnya.
+##### - Guacamole: Hidangan saus yang terbuat dari alpukat yang dihaluskan dan dicampur dengan tomat, bawang, cabai, dan rempah-rempah.
+
+##### 5. India:
+
+##### - Chicken Tikka Masala: Potongan ayam yang dimasak dalam saus tomat dan rempah-rempah, disajikan dengan nasi atau roti naan.
+##### - Curry: Hidangan berkuah yang terdiri dari daging, ikan, atau sayuran yang dimasak dalam campuran rempah-rempah.
+
+##### 6. Prancis:
+
+##### - Coq au Vin: Potongan ayam yang dimasak dalam anggur merah dengan bawang, jamur, dan bacon.
+##### - Croissant: Roti terkenal Prancis yang berbentuk bulan sabit, lembut di dalam dengan lapisan renyah di luar.
+
+##### 7. Thailand:
+
+##### - Pad Thai: Mie goreng Thai dengan tauge, daging, telur, dan kacang tanah yang dicampur dengan saus asam manis pedas.
+##### - Tom Yum Goong: Sup pedas Thailand dengan udang, jamur, tomat, dan rempah-rempah seperti lemon grass dan daun jeruk kaffir.
+
+##### 8. Turki:
+
+##### - Kebab: Daging yang dipanggang atau dipanggang di atas bara, biasanya disajikan dengan roti, nasi, atau sayuran.
+##### - Baklava: Kue lapis berbentuk segitiga yang terbuat dari lapisan tipis adonan dan kacang, disiram dengan sirup manis.
+
+##### 9. Argentina:
+
+##### - Asado: Daging panggang, terutama daging sapi, yang disajikan dengan berbagai macam potongan dan dipanggang di atas api terbuka.
+##### - Empanadas: Pastry berbentuk setengah bulan yang diisi dengan daging, keju, atau sayuran.
+
+##### 10. Mesir:
+
+##### - Koshari: Hidangan nasi dan pasta yang disajikan dengan saus tomat, lentil, bawang goreng, dan sambal pedas.
+##### - Ful Medames: Ful medames adalah hidangan sarapan yang populer di Mesir. Ini terdiri dari kacang fava yang dimasak hingga lembut, kemudian dihaluskan dan disajikan dengan minyak zaitun, bawang merah, tomat, dan bumbu seperti jintan dan bubuk cabe.
