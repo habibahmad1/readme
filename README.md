@@ -72,6 +72,34 @@ Jangan ragu untuk menjelajahi repositori saya dan jangan sungkan untuk memberika
 
 ##### 10. Makanan Lezat: Kuliner Indonesia terkenal di seluruh dunia karena kelezatan dan keunikannya. Beberapa makanan khas Indonesia yang terkenal antara lain nasi goreng, rendang, sate, dan gado-gado.
 
+# Mata Uang Setiap Negara 💵
+
+##### 1. Dolar Amerika Serikat (USD) - Amerika Serikat
+##### 2. Euro (EUR) - Uni Eropa
+##### 3. Yen Jepang (JPY) - Jepang
+##### 4. Pound Sterling (GBP) - Britania Raya
+##### 5. Dolar Australia (AUD) - Australia
+##### 6. Dolar Kanada (CAD) - Kanada
+##### 7. Franc Swiss (CHF) - Swiss
+##### 8. Dolar Selandia Baru (NZD) - Selandia Baru
+##### 9. Krona Swedia (SEK) - Swedia
+##### 10. Krona Norwegia (NOK) - Norwegia
+##### 11. Dolar Hong Kong (HKD) - Hong Kong
+##### 12. Dolar Singapura (SGD) - Singapura
+##### 13. Baht Thailand (THB) - Thailand
+##### 14. Rupiah Indonesia (IDR) - Indonesia
+##### 15. Peso Filipina (PHP) - Filipina
+##### 16. Won Korea Selatan (KRW) - Korea Selatan
+##### 17. Rupee India (INR) - India
+##### 18. Yuan Tiongkok (CNY) - Tiongkok
+##### 19. Rubel Rusia (RUB) - Rusia
+##### 20. Real Brasil (BRL) - Brasil
+##### 21. Peso Meksiko (MXN) - Meksiko
+##### 22. Ringgit Malaysia (MYR) - Malaysia
+##### 23. Dinar Kuwait (KWD) - Kuwait
+##### 24. Dirham Uni Emirat Arab (AED) - Uni Emirat Arab
+##### 25. Pound Mesir (EGP) - Mesir
+
 
 # Negara Dengan Nilai Mata Uang Tinggi 💲
 
