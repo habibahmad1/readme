@@ -150,7 +150,7 @@ Jangan ragu untuk menjelajahi repositori saya dan jangan sungkan untuk memberika
 ##### 10. Puding Mangga: Puding mangga yang segar dan lembut, disajikan dengan potongan mangga segar di atasnya.
 
 
-# Makanan Khas Setiap Negara
+# Makanan Khas Setiap Negara 🧆🍳
 
 ##### 1. Indonesia:
 
