@@ -125,3 +125,28 @@ Jangan ragu untuk menjelajahi repositori saya dan jangan sungkan untuk memberika
 ##### 4. Finlandia: Finlandia sering kali dianggap sebagai salah satu negara dengan penduduk terpintar karena sistem pendidikan yang unggul, fokus pada kreativitas, dan pengajaran yang berkualitas tinggi. Penduduk Finlandia memiliki tingkat literasi yang sangat tinggi dan hasil ujian internasional yang mengesankan.
 
 ##### 5. Norwegia: Norwegia juga sering kali muncul dalam daftar negara dengan penduduk terpintar. Sistem pendidikan yang inklusif, dukungan pemerintah yang kuat, dan investasi dalam pendidikan membuat penduduk Norwegia memiliki tingkat literasi dan pendidikan yang tinggi. 
+
+
+# Disert Paling disukai di Dunia 🍰
+
+##### 1. Es Krim Vanilla dengan Buah Segar: Es krim vanilla yang lembut disajikan dengan potongan buah segar seperti stroberi, anggur, dan potongan pisang.
+
+##### 2. Puding Cokelat dengan Krim Vanilla: Puding cokelat lembut disajikan dengan krim vanilla yang lembut dan taburan cokelat parut di atasnya.
+
+##### 3. Tiramisu: Tiramisu adalah disert asal Italia yang terdiri dari lapisan keju mascarpone yang lembut, campuran kopi, dan biskuit ladyfinger yang direndam kopi.
+
+##### 4. Cheesecake Buah-buahan: Cheesecake klasik yang lembut dengan dasar remah-remah graham, disajikan dengan potongan buah-buahan segar seperti blueberry, raspberry, atau stroberi.
+
+##### 5. Pancake Buah-buahan: Pancake yang empuk disajikan dengan potongan buah-buahan segar seperti pisang, blueberry, dan maple syrup.
+
+##### 6. Creme Brulee: Creme brulee adalah puding krim yang lembut dengan lapisan karamel yang renyah di atasnya.
+
+##### 7. Mousse Cokelat: Mousse cokelat yang ringan dan lembut, disajikan dengan taburan cokelat parut di atasnya.
+
+##### 8. Es Buah Segar: Campuran buah-buahan segar seperti semangka, melon, anggur, dan stroberi, disajikan dengan es batu dan sirup.
+
+##### 9. Kue Pisang: Kue pisang yang lembut dengan potongan pisang di dalamnya, disajikan dengan saus karamel dan krim kocok.
+
+##### 10. Puding Mangga: Puding mangga yang segar dan lembut, disajikan dengan potongan mangga segar di atasnya.
+
+
