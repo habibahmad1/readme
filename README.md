@@ -201,3 +201,26 @@ Jangan ragu untuk menjelajahi repositori saya dan jangan sungkan untuk memberika
 
 ##### - Koshari: Hidangan nasi dan pasta yang disajikan dengan saus tomat, lentil, bawang goreng, dan sambal pedas.
 ##### - Ful Medames: Ful medames adalah hidangan sarapan yang populer di Mesir. Ini terdiri dari kacang fava yang dimasak hingga lembut, kemudian dihaluskan dan disajikan dengan minyak zaitun, bawang merah, tomat, dan bumbu seperti jintan dan bubuk cabe.
+
+
+# Hari - Hari Penting di Indonesia 📅
+
+##### 1. Hari Kemerdekaan Republik Indonesia: Dirayakan setiap tanggal 17 Agustus untuk memperingati proklamasi kemerdekaan Indonesia pada tahun 1945.
+
+##### 2. Hari Pendidikan Nasional: Diperingati setiap tanggal 2 Mei untuk menghormati peran pendidikan dalam pembangunan bangsa.
+
+##### 3. Hari Kartini: Dirayakan setiap tanggal 21 April untuk mengenang jasa Raden Ajeng Kartini dalam memperjuangkan emansipasi wanita di Indonesia.
+
+##### 4. Hari Sumpah Pemuda: Diperingati setiap tanggal 28 Oktober untuk memperingati Sumpah Pemuda yang diucapkan pada tahun 1928, yang menegaskan persatuan Indonesia dalam semangat nasionalisme.
+
+##### 5. Hari Natal: Merupakan hari raya umat Kristiani yang dirayakan setiap tanggal 25 Desember.
+
+##### 6. Hari Raya Idul Fitri: Merupakan hari raya umat Islam yang dirayakan setelah bulan puasa Ramadan, biasanya tanggal 1 Syawal dalam penanggalan Hijriyah.
+
+##### 7. Hari Raya Idul Adha: Merupakan hari raya umat Islam yang dirayakan setiap tanggal 10 Dzulhijjah dalam penanggalan Hijriyah, yang juga dikenal sebagai Hari Raya Kurban.
+
+##### 8. Hari Ulang Tahun Pancasila: Dirayakan setiap tanggal 1 Juni untuk memperingati lahirnya dasar negara Pancasila pada tahun 1945.
+
+##### 9. Hari Peringatan Proklamasi Kemerdekaan Papua Barat: Diperingati setiap tanggal 1 Desember untuk menghormati peristiwa pernyataan kemerdekaan Papua Barat pada tahun 1961.
+
+##### 10. Hari Bhayangkara: Diperingati setiap tanggal 1 Juli untuk menghormati jasa-jasa kepolisian Republik Indonesia.
