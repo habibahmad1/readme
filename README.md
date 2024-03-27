@@ -224,3 +224,26 @@ Jangan ragu untuk menjelajahi repositori saya dan jangan sungkan untuk memberika
 ##### 9. Hari Peringatan Proklamasi Kemerdekaan Papua Barat: Diperingati setiap tanggal 1 Desember untuk menghormati peristiwa pernyataan kemerdekaan Papua Barat pada tahun 1961.
 
 ##### 10. Hari Bhayangkara: Diperingati setiap tanggal 1 Juli untuk menghormati jasa-jasa kepolisian Republik Indonesia.
+
+
+# Fakta Menarik Lebaran Islam 🌳
+
+##### 1. Hari Kemenangan: Lebaran merupakan Hari Kemenangan bagi umat Islam yang menandai berakhirnya bulan Ramadan, bulan puasa, dan datangnya bulan Syawal dalam kalender Islam.
+
+##### 2. Tradisi Pakaian Baru: Salah satu tradisi yang umum dilakukan menjelang Lebaran adalah membeli pakaian baru, yang disebut sebagai "baju Lebaran". Ini adalah simbol kebersihan dan kesegaran spiritual.
+
+##### 3. Zakat Fitrah: Sebelum menjalankan shalat Idul Fitri, umat Islam diwajibkan untuk memberikan zakat fitrah, yaitu sumbangan kepada yang membutuhkan sebagai bentuk solidaritas sosial. Zakat fitrah bertujuan untuk membersihkan jiwa dari dosa-dosa yang mungkin terjadi selama bulan Ramadan.
+
+##### 4. Shalat Idul Fitri: Salah satu ciri khas Lebaran adalah pelaksanaan shalat Idul Fitri yang dilakukan secara berjamaah di masjid atau lapangan terbuka. Shalat ini dihadiri oleh banyak umat Islam yang berkumpul untuk bersilaturahmi dan berdoa bersama.
+
+##### 5. Tradisi Bersilaturahmi: Lebaran juga merupakan waktu yang penuh dengan tradisi bersilaturahmi atau berkunjung ke rumah kerabat, tetangga, dan teman. Hal ini menguatkan ikatan sosial antar sesama.
+
+##### 6. Makanan Khas Lebaran: Ada banyak makanan khas yang menjadi hidangan utama saat Lebaran. Di Indonesia misalnya, makanan khas Lebaran termasuk ketupat, opor ayam, rendang, dan kue-kue kering.
+
+##### 7. Takbir Keliling: Pada malam takbiran, menjelang Idul Fitri, umat Islam biasanya melakukan kegiatan takbir keliling, yaitu berkumpul dalam kelompok-kelompok kecil untuk bersama-sama mengumandangkan takbir (pengucapan kalimat "Allahu Akbar").
+
+##### 8. Memberikan Hadiah: Tradisi memberikan hadiah atau saling bertukar hadiah juga umum dilakukan pada Hari Raya Idul Fitri, sebagai ungkapan kasih sayang dan kebahagiaan.
+
+##### 9. Pengampunan dan Maaf-Maafan: Lebaran adalah waktu yang tepat untuk memaafkan kesalahan orang lain dan meminta maaf atas kesalahan yang telah dilakukan. Tradisi meminta maaf dan mengampuni ini merupakan bagian penting dari persiapan menyambut hari kemenangan.
+
+##### 10. Umrah dan Ziarah Kubur: Di beberapa negara, tradisi melakukan umrah (ibadah kecil yang dilakukan di Makkah) atau ziarah kubur (mengunjungi makam orang tua atau kerabat yang telah meninggal) juga dilakukan sebagai bagian dari ritual Lebaran.
