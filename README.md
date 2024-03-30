@@ -270,3 +270,26 @@ Jangan ragu untuk menjelajahi repositori saya dan jangan sungkan untuk memberika
 ##### 9. Berlatih Berbicara dengan Penutur Asli: Berbicaralah dengan penutur asli bahasa Inggris sesering mungkin. Hal ini akan membantu Anda memperbaiki pengucapan Anda dan memahami berbagai aksen yang berbeda.
 
 ##### 10. Jangan Takut untuk Berbicara: Salah satu hal yang sering menghambat kemajuan adalah rasa takut untuk membuat kesalahan. Ingatlah bahwa membuat kesalahan adalah bagian dari proses pembelajaran. Jangan ragu untuk berbicara, dan teruslah berlatih.
+
+
+# Fakta Menarik Umum 🧩
+
+##### 1. Rumput Tidak Perlu Pohon untuk Berkembang: Rumput dapat tumbuh dan berkembang tanpa memerlukan pohon sebagai pendukungnya. Rumput memiliki sistem akar yang cukup kuat untuk tumbuh secara mandiri.
+
+##### 2. Binatang Tanpa Otak: Spon laut adalah contoh binatang yang tidak memiliki otak. Meskipun demikian, mereka tetap mampu bergerak, bereproduksi, dan bertahan hidup di habitat mereka.
+
+##### 3. Dua Iris Mata: Beberapa orang dilahirkan dengan kondisi yang disebut heterokromia, di mana mereka memiliki dua warna iris mata yang berbeda atau bercak warna pada iris mata mereka.
+
+##### 4. Uniknya Sidik Jari: Tidak ada dua orang yang memiliki sidik jari yang sama. Meskipun manusia memiliki jutaan sidik jari yang berbeda, tidak ada yang identik satu sama lainnya, bahkan pada saudara kandung.
+
+##### 5. Keunikan Kucing: Kucing memiliki kemampuan untuk melihat dalam cahaya yang sangat rendah dibandingkan dengan manusia. Selain itu, mereka dapat memutar telinga mereka hingga 180 derajat.
+
+##### 6. Matahari Lebih Besar dari Rata-rata Bintang: Meskipun matahari terlihat kecil di langit, sebenarnya itu jauh lebih besar dari sebagian besar bintang dalam galaksi kita, termasuk bintang yang terlihat lebih terang.
+
+##### 7. Pohon Tertua di Dunia: Pohon Bristlecone Pine yang ditemukan di Pegunungan White Mountains, California, dianggap sebagai salah satu organisme hidup tertua di dunia, dengan beberapa individu yang berusia lebih dari 4.000 tahun.
+
+##### 8. Keberadaan DNA di Mana-mana: Seluruh makhluk hidup, dari bakteri hingga manusia, memiliki DNA sebagai materi genetiknya. Bahkan, DNA telah ditemukan dalam lingkungan yang ekstrem seperti dalam gletser dan lautan yang dalam.
+
+##### 9. Air yang Aman Untuk Konsumsi: Sebagian besar air di Bumi (sekitar 97%) berada di lautan yang asin. Namun, hanya sekitar 3% dari seluruh air di Bumi yang merupakan air tawar, dan sebagian kecil dari itu yang benar-benar dapat digunakan untuk konsumsi manusia.
+
+##### 10. Kemampuan Memori Gajah: Gajah dikenal memiliki kemampuan memori yang luar biasa. Mereka dapat mengingat lokasi sumber air, rute migrasi, serta individu-individu dalam kawanan mereka selama bertahun-tahun.
