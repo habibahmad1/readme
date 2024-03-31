@@ -316,3 +316,85 @@ Jangan ragu untuk menjelajahi repositori saya dan jangan sungkan untuk memberika
 ##### 9. Turki - Turkish Coffee: Turkish coffee adalah minuman kopi khas Turki yang disajikan dalam cangkir kecil dan sangat pekat. Kopi ini diseduh dengan cara khusus dan biasanya disajikan dengan sedikit buih di atasnya.
 
 ##### 10. Skotlandia - Scotch Whisky: Scotch whisky adalah minuman beralkohol khas Skotlandia yang terbuat dari sereal, terutama barley, dan disuling di Skotlandia. Ini dikenal karena beragam rasa dan aroma yang kompleks.
+
+# Verb 1,2,3 Bahasa Inggris ✨
+
+##### 1.To Be (verb 1: be, verb 2: was/were, verb 3: been)
+
+Contoh:
+"I am happy." (Saya bahagia.)
+"She was here yesterday." (Dia ada di sini kemarin.)
+"They have been to Paris." (Mereka pernah ke Paris.)
+
+
+
+##### 2.To Have (verb 1: have, verb 2: had, verb 3: had)
+
+Contoh:
+"He has a car." (Dia memiliki mobil.)
+"She had a headache." (Dia memiliki sakit kepala.)
+"We have had breakfast." (Kita sudah sarapan.)
+
+
+##### 3.To Do (verb 1: do, verb 2: did, verb 3: done)
+
+Contoh:
+"I do my homework every day." (Saya mengerjakan pekerjaan rumah saya setiap hari.)
+"She did the dishes last night." (Dia mencuci piring semalam.)
+"They have done a great job." (Mereka telah melakukan pekerjaan yang bagus.)
+
+
+##### 4.To Go (verb 1: go, verb 2: went, verb 3: gone)
+
+Contoh:
+"They go to school by bus." (Mereka pergi ke sekolah naik bis.)
+"He went to the store." (Dia pergi ke toko.)
+"She has gone to the park." (Dia telah pergi ke taman.)
+
+
+##### 5.To Eat (verb 1: eat, verb 2: ate, verb 3: eaten)
+
+Contoh:
+"I eat breakfast every morning." (Saya sarapan setiap pagi.)
+"She ate sushi for lunch." (Dia makan sushi untuk makan siang.)
+"They have eaten all the cake." (Mereka telah makan semua kue.)
+
+
+##### 6.To See (verb 1: see, verb 2: saw, verb 3: seen)
+
+Contoh:
+"I see my friends at school." (Saya melihat teman-teman saya di sekolah.)
+"He saw a movie last night." (Dia menonton film semalam.)
+"She has seen that before." (Dia sudah melihat itu sebelumnya.)
+
+
+##### 7.To Drink (verb 1: drink, verb 2: drank, verb 3: drunk)
+
+Contoh:
+"They drink coffee in the morning." (Mereka minum kopi di pagi hari.)
+"He drank a glass of water." (Dia minum segelas air.)
+"She has drunk all the juice." (Dia telah meminum semua jus.)
+
+
+##### 8.To Take (verb 1: take, verb 2: took, verb 3: taken)
+
+Contoh:
+"I take the bus to work." (Saya naik bus ke tempat kerja.)
+"She took a picture of the sunset." (Dia mengambil foto matahari terbenam.)
+"They have taken their seats." (Mereka sudah mengambil tempat duduk mereka.)
+
+
+##### 9.To Make (verb 1: make, verb 2: made, verb 3: made)
+
+Contoh:
+"She makes delicious cookies." (Dia membuat kue yang lezat.)
+"He made a cake for his sister's birthday." (Dia membuat kue untuk ulang tahun adiknya.)
+"We have made plans for the weekend." (Kita telah membuat rencana untuk akhir pekan.)
+
+
+##### 10.To Say (verb 1: say, verb 2: said, verb 3: said)
+
+Contoh:
+"I say hello to my neighbors every morning." (Saya mengucapkan halo kepada tetangga setiap pagi.)
+"She said she would come to the party." (Dia mengatakan dia akan datang ke pesta.)
+"They have said their goodbyes." (Mereka telah mengucapkan selamat tinggal.)
