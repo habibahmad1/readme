@@ -293,3 +293,26 @@ Jangan ragu untuk menjelajahi repositori saya dan jangan sungkan untuk memberika
 ##### 9. Air yang Aman Untuk Konsumsi: Sebagian besar air di Bumi (sekitar 97%) berada di lautan yang asin. Namun, hanya sekitar 3% dari seluruh air di Bumi yang merupakan air tawar, dan sebagian kecil dari itu yang benar-benar dapat digunakan untuk konsumsi manusia.
 
 ##### 10. Kemampuan Memori Gajah: Gajah dikenal memiliki kemampuan memori yang luar biasa. Mereka dapat mengingat lokasi sumber air, rute migrasi, serta individu-individu dalam kawanan mereka selama bertahun-tahun.
+
+
+# Minuman Khas Setiap Negara 🍷
+
+##### 1. Jamaica - Rum Punch: Minuman khas Jamaika ini terbuat dari rum, jus buah-buahan segar seperti jeruk, nanas, dan lemon, serta sering kali dicampur dengan rempah-rempah seperti kayu manis dan pala.
+
+##### 2. Perancis - Champagne: Champagne adalah minuman beralkohol asal Perancis yang terkenal di seluruh dunia. Ini adalah jenis anggur bergelembung yang diproduksi secara khusus di wilayah Champagne di Perancis.
+
+##### 3. Italia - Espresso: Espresso adalah minuman kopi khas Italia yang disajikan dalam cangkir kecil. Ini adalah kopi yang diseduh dengan kuat menggunakan mesin espresso.
+
+##### 4. Thailand - Thai Iced Tea: Minuman khas Thailand ini terbuat dari teh hitam yang manis, sering kali dicampur dengan susu kental manis dan disajikan dengan es batu.
+
+##### 5. Jepang - Matcha: Matcha adalah bubuk teh hijau khas Jepang yang disajikan dengan cara yang unik. Biasanya dibuat dengan mencampurkan bubuk matcha dengan air panas, dan kadang-kadang dicampur dengan susu untuk membuat matcha latte.
+
+##### 6. Meksiko - Margarita: Margarita adalah koktail khas Meksiko yang terbuat dari tequila, likuer jeruk (biasanya Cointreau atau Triple Sec), dan jus lemon atau jus jeruk nipis, disajikan dengan es batu.
+
+##### 7. India - Chai: Chai adalah minuman teh khas India yang terbuat dari campuran teh hitam, rempah-rempah seperti jahe, kayu manis, dan kapulaga, serta susu dan gula.
+
+##### 8. Kuba - Mojito: Mojito adalah koktail khas Kuba yang terdiri dari rum, daun mint, gula, air soda, dan jus lemon atau jeruk nipis, disajikan dengan es batu.
+
+##### 9. Turki - Turkish Coffee: Turkish coffee adalah minuman kopi khas Turki yang disajikan dalam cangkir kecil dan sangat pekat. Kopi ini diseduh dengan cara khusus dan biasanya disajikan dengan sedikit buih di atasnya.
+
+##### 10. Skotlandia - Scotch Whisky: Scotch whisky adalah minuman beralkohol khas Skotlandia yang terbuat dari sereal, terutama barley, dan disuling di Skotlandia. Ini dikenal karena beragam rasa dan aroma yang kompleks.
