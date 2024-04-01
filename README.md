@@ -399,6 +399,8 @@ Contoh:
 "She said she would come to the party." (Dia mengatakan dia akan datang ke pesta.)
 "They have said their goodbyes." (Mereka telah mengucapkan selamat tinggal.)
 
+
+# 10 Penemu Paling Berjasa 🏆
 # 1. Thomas Edison:
 
 Penemuan: Lampu pijar listrik (lampu Edison), sistem pembangkit tenaga listrik, fonograf, dan banyak lagi. Dia memiliki lebih dari 1.000 paten di Amerika Serikat.
