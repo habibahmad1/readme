@@ -398,3 +398,43 @@ Contoh:
 "I say hello to my neighbors every morning." (Saya mengucapkan halo kepada tetangga setiap pagi.)
 "She said she would come to the party." (Dia mengatakan dia akan datang ke pesta.)
 "They have said their goodbyes." (Mereka telah mengucapkan selamat tinggal.)
+
+# 1. Thomas Edison:
+
+Penemuan: Lampu pijar listrik (lampu Edison), sistem pembangkit tenaga listrik, fonograf, dan banyak lagi. Dia memiliki lebih dari 1.000 paten di Amerika Serikat.
+
+# 2. Alexander Graham Bell:
+
+Penemuan: Telepon. Bell juga memiliki banyak paten lainnya terkait dengan komunikasi dan teknologi.
+
+# 3. Marie Curie:
+
+Karya: Penelitiannya dalam bidang radioaktivitas membantu memahami sifat-sifat radioaktif, yang berkontribusi pada pengembangan teknologi medis seperti terapi radiasi dan pengobatan kanker.
+
+# 4. Galileo Galilei:
+
+Karya: Penemuan teropong astronomi yang memungkinkan pengamatannya tentang gerakan benda langit, seperti bulan dan bintang.
+
+# 5. Albert Einstein:
+
+Karya: Teori Relativitasnya, khususnya Teori Relativitas Umum, merombak pemahaman kita tentang ruang, waktu, dan gravitasi. Kontribusi lainnya termasuk penjelasan tentang efek fotolistrik dan teori relativitas khusus.
+
+# 6. Ada Lovelace:
+
+Karya: Dia sering dianggap sebagai penemu pertama program komputer. Dia menulis algoritma untuk mesin analitik Charles Babbage, yang dianggap sebagai desain awal komputer.
+
+# 7. Nikola Tesla:
+
+Karya: Penemuan dan kontribusinya mencakup sistem tenaga listrik AC (arus bolak-balik), motor listrik induksi, transformator, radio, dan banyak lagi.
+
+# 8. James Watt:
+
+Karya: Pengembangan mesin uap yang lebih efisien, yang membuka jalan bagi revolusi industri di Britania Raya dan di seluruh dunia.
+
+# 9. Johannes Gutenberg:
+
+Karya: Penemuan mesin cetak dengan huruf metal (press cetak Gutenberg), yang memungkinkan pencetakan massal buku dan mempercepat penyebaran ilmu pengetahuan dan ide di seluruh Eropa.
+
+# 10. Louis Pasteur:
+
+Karya: Penemuan pasteurisasi, yang membantu mencegah penyakit yang disebabkan oleh mikroorganisme dalam makanan dan minuman. Pasteur juga terkenal karena karyanya dalam bidang imunologi dan vaksinasi.
