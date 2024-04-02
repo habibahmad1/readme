@@ -440,3 +440,26 @@ Karya: Penemuan mesin cetak dengan huruf metal (press cetak Gutenberg), yang mem
 # 10. Louis Pasteur:
 
 Karya: Penemuan pasteurisasi, yang membantu mencegah penyakit yang disebabkan oleh mikroorganisme dalam makanan dan minuman. Pasteur juga terkenal karena karyanya dalam bidang imunologi dan vaksinasi.
+
+
+# 10 Fakta Menarik Tentang Games
+
+##### 1. Industri yang Berkembang Pesat: Industri permainan video telah berkembang pesat dalam beberapa dekade terakhir. Menurut laporan dari Entertainment Software Association, pendapatan industri game di Amerika Serikat saja mencapai lebih dari $60 miliar pada tahun 2020.
+
+##### 2. Permainan untuk Semua Usia: Game tidak lagi hanya untuk anak-anak atau remaja. Statistik menunjukkan bahwa demografi pemain game semakin bervariasi, dengan banyak orang dewasa yang juga menikmati bermain game.
+
+##### 3. Pengaruh Ekonomi yang Besar: Game telah menjadi sumber penghasilan yang signifikan bagi banyak orang, baik sebagai pemain profesional, streamer, pengembang, atau dalam industri terkait seperti eSports.
+
+##### 4. Pengembangan Teknologi: Industri game telah mendorong inovasi dalam teknologi, termasuk grafis komputer, kecerdasan buatan, dan realitas virtual. Perkembangan ini sering kali memiliki dampak yang lebih luas di luar industri game itu sendiri.
+
+##### 5. Efek Positif pada Kesehatan Mental: Beberapa penelitian telah menunjukkan bahwa bermain game tertentu dapat memiliki efek positif pada kesehatan mental, termasuk mengurangi stres, meningkatkan kemampuan pemecahan masalah, dan meningkatkan koneksi sosial.
+
+##### 6. Komitmen Waktu yang Tinggi: Beberapa game, terutama yang berbasis online dan kompetitif, dapat menuntut komitmen waktu yang tinggi dari pemainnya. Ini telah menimbulkan kekhawatiran tentang potensi adiksi dan penggunaan yang berlebihan.
+
+##### 7. Pengaruh Budaya: Game telah memiliki pengaruh yang signifikan dalam budaya populer, dengan karakter, cerita, dan citra dari permainan tertentu sering kali menjadi ikonik dan mempengaruhi tren di luar dunia game.
+
+##### 8. Kolaborasi Antar-Industri: Kita sering melihat kolaborasi antara industri game dan industri lainnya, seperti film, musik, dan mode. Misalnya, adaptasi film dari permainan video dan musik yang dikomposisikan khusus untuk permainan.
+
+##### 9. Platform yang Beragam: Game tidak hanya tersedia di konsol dan PC, tetapi juga di perangkat seluler, tablet, dan bahkan dalam bentuk permainan papan atau permainan realitas tertentu.
+
+##### 10. Komunitas yang Kuat: Game sering kali membentuk komunitas yang kuat di sekitarnya, baik secara online maupun offline. Ini dapat menjadi tempat bagi pemain untuk berinteraksi, berbagi tips, atau bahkan membentuk hubungan sosial yang kuat.
