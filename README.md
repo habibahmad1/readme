@@ -8,7 +8,7 @@ Jangan ragu untuk menjelajahi repositori saya dan jangan sungkan untuk memberika
 
 # Terima kasih atas kunjungannya dan semoga Anda menemukan sesuatu yang menarik di sini! 🚀
 
-# Faktar Menarik Programming 🎓🎯
+# Fakta Menarik Programming 🎓🎯
 
 ##### 1. Python adalah Bahasa Pemrograman yang Populer: Python merupakan salah satu bahasa pemrograman yang paling populer saat ini. Keunggulan Python termasuk sintaksis yang mudah dipahami, fleksibilitas, dan berbagai library yang kaya. Bahkan, banyak perusahaan besar seperti Google, Facebook, dan NASA menggunakan Python dalam pengembangan perangkat lunak mereka.
 
